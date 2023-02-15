@@ -1,4 +1,4 @@
-#Kurasaku Lab
+# Kurasaku Lab
 
 **会社概要**
 SaaSであなたの大切な時間をお守りします
