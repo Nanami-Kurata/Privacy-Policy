@@ -59,4 +59,4 @@ This policy is effective as of 2023-02-15
 
 **Contact Us**
 
-If you have any questions or suggestions about our Privacy Policy, do not hesitate to contact us at rikuflyfr1007@g.ecc.u-tokyo.ac.jp.
+If you have any questions or suggestions about our Privacy Policy, do not hesitate to contact us at kurasaku0412@gmail.com
